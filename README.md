@@ -1,0 +1,1 @@
+# trendglobe-ai-fashion-assistant
